@@ -1,1 +1,12 @@
 # PZ10
+![Скриншот 20-03-2026 104415](https://github.com/user-attachments/assets/f96b6217-9dd8-464b-b9d7-790a15ed83cf)
+![Скриншот 20-03-2026 104448](https://github.com/user-attachments/assets/55c57a4f-c623-4d84-ac6b-a0a7c0fb7f60)
+![Скриншот 20-03-2026 104504](https://github.com/user-attachments/assets/6eacc79c-b520-45b4-b572-16f90a6ca403)
+![Скриншот 20-03-2026 104522](https://github.com/user-attachments/assets/96568b58-9777-4bf6-840e-40bf23334fd2)
+![Скриншот 20-03-2026 104456](https://github.com/user-attachments/assets/1bb485b0-a23b-4c05-9e01-27069dc87b6a)
+![Скриншот 20-03-2026 104530](https://github.com/user-attachments/assets/83957292-303e-4f2f-932f-ae82e8a1459a)
+![Скриншот 20-03-2026 104511](https://github.com/user-attachments/assets/63b35c05-0f3a-478d-8f25-472a4e17548e)
+![Скриншот 20-03-2026 104537](https://github.com/user-attachments/assets/edbf9cb2-41b4-4d31-a4fd-f498dfd86750)
+![Скриншот 20-03-2026 104546](https://github.com/user-attachments/assets/872fd1e5-e652-41b1-a211-a32a90c0826a)
+![Скриншот 20-03-2026 104557](https://github.com/user-attachments/assets/9618f877-a114-45c5-8912-cb1f07403f52)
+![Скриншот 20-03-2026 104424](https://github.com/user-attachments/assets/a602c3f9-4104-4b54-b621-b1ac4d850e81)
